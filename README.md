@@ -190,4 +190,6 @@ Voice Input/Output: Speak to ShanaAI and hear its replies!
 
 Social Sharing: Easily share the best roasts with friends.
 
+You can check the screenshots i have attached in this files!
+
 Thank you for checking out Updated And get roasted 😁!!
